@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Shayanraza0710
-- 👀 I’m interested in Wrb Development
+- 👀 I’m interested in Web Development
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on Web development, AI
 - 📫 How to reach me :- Instagram:- @shayan0710 , X :- shayanraza308 
